@@ -1,3 +1,6 @@
+![276136704_1349116665513101_6436037723736343076_n](https://user-images.githubusercontent.com/99413772/166245313-9ff5f48d-0b25-4ed0-abe9-fb7a8d75dbce.jpg)
+![barras saladas](https://user-images.githubusercontent.com/99413772/166245332-54ba1be2-c9d1-432b-8c97-1882f6bf34eb.jpg)
+![entelado](https://user-images.githubusercontent.com/99413772/166245355-dc1dedcc-bc58-416f-9c21-b6e000889e04.jpg)
 ![deco1](https://user-images.githubusercontent.com/99413772/163015117-73b18541-e2bc-43e5-8455-e9ffc7b410a9.jpg)
 ![letras](https://user-images.githubusercontent.com/99413772/163015138-2b62039b-1978-40c1-85fe-6150adaa463c.jpg)
 ![letra](https://user-images.githubusercontent.com/99413772/163015159-39987a41-29a2-47f0-9b0c-48c46caaff13.jpg)
