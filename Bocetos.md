@@ -1,5 +1,5 @@
 
-Se crean bocetos para sitio web
+Se crean primeros avances para sitio web
 
-![boceto pag](https://user-images.githubusercontent.com/99413772/161586806-50dd6f42-2ddd-497b-be82-7f634b63f91a.jpg)
-[boceto.pdf](https://github.com/daisynaranjo/Sprint-el-coraz-n-de-SCRUM/files/8411336/boceto.pdf)
+![pagprincipal (2)](https://user-images.githubusercontent.com/99413772/167760668-5c066a4a-b751-4890-82e1-a6942d4c2a3f.jpg)
+
