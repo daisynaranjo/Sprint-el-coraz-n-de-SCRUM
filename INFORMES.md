@@ -1,3 +1,4 @@
-![Informe trabajo completado](https://user-images.githubusercontent.com/99413772/163014592-01f1da20-5bb2-40c9-ac60-4c79a7492cb2.png)
-![Diagrama de flujo abril2022](https://user-images.githubusercontent.com/99413772/166244914-b3b2ad3a-fffd-4279-9f08-03825eea2fd1.png)
+![trabajo completado (2)](https://user-images.githubusercontent.com/99413772/167763894-8752c16b-fedb-4e1e-9234-b12d414bf8d7.png)
+![trabajos pendientes (2)](https://user-images.githubusercontent.com/99413772/167763905-a958eda4-00cc-4a24-9979-c6474f7cdd37.png)
+ng)
 
